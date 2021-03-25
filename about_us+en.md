@@ -12,26 +12,26 @@ The steering committee exercises the broadest powers in managing the authority a
 
 Study, design and contract on various means of communication, including transmitting and receiving stations, radar devices, navigational aids and all systems related to securing the safety of air navigation in the airspace of the Libyan state and other airspace within the Libyan Aviation Information Territory, and securing aviation safety and air traffic regulation according to local regulations and standards And the issuance of the Libyan aviation guide, pilots' announcements, technical bulletins and navigational maps, and coordination of cooperation with the aviation information regions centers of neighboring countries to ensure aviation safety and conclude related agreements.
 
-1- Organizing air transport activities and taking the necessary measures to conclude bilateral and international agreements to exchange commercial air transport rights in coordination with the concerned authorities, issue permits for charter and transit flights, and issue licenses for civil aircraft operating in the Libyan state.
+1. Organizing air transport activities and taking the necessary measures to conclude bilateral and international agreements to exchange commercial air transport rights in coordination with the concerned authorities, issue permits for charter and transit flights, and issue licenses for civil aircraft operating in the Libyan state.
 
-2- Inspecting the work of national and foreign airlines in Libya and their agents, approving and monitoring the domestic and international air transport prices and fees that they charge, controlling the violations they commit, imposing penalties and fines within the limits of the legislation in force, preparing economic research and issuing statistical reports on air transport and providing the necessary facilities to the operating airlines in Lybia.
+1. Inspecting the work of national and foreign airlines in Libya and their agents, approving and monitoring the domestic and international air transport prices and fees that they charge, controlling the violations they commit, imposing penalties and fines within the limits of the legislation in force, preparing economic research and issuing statistical reports on air transport and providing the necessary facilities to the operating airlines in Lybia.
 
-3- Issuing landing and transit permits for foreign military aircraft, as well as aircraft of foreign official delegations, in coordination with the concerned authorities.
+1. Issuing landing and transit permits for foreign military aircraft, as well as aircraft of foreign official delegations, in coordination with the concerned authorities.
 
-4- Representing the Libyan state in international and regional civil aviation organizations and bodies, as well as in regional and international conferences and committees.
+1. Representing the Libyan state in international and regional civil aviation organizations and bodies, as well as in regional and international conferences and committees.
 
-5- Studying international treaties in the field of civil aviation, recommending the Libyan position on them, and following up the necessary procedures for ratification or accession to them.
+1. Studying international treaties in the field of civil aviation, recommending the Libyan position on them, and following up the necessary procedures for ratification or accession to them.
 
-6- Testing pilots, air engineers, maintenance engineers, technicians, air hospitality crews, deportees and air traffic controllers and issuing their licenses.
+1. Testing pilots, air engineers, maintenance engineers, technicians, air hospitality crews, deportees and air traffic controllers and issuing their licenses.
 
-7- Registration of civil aircraft, issuance of validity certificates, approval of operation and maintenance manuals, as well as accreditation of national and foreign institutions that carry out maintenance, aging and periodic inspection of aircraft.
+1. Registration of civil aircraft, issuance of validity certificates, approval of operation and maintenance manuals, as well as accreditation of national and foreign institutions that carry out maintenance, aging and periodic inspection of aircraft.
 
-8- Investigating aircraft accidents and preparing related technical reports.
+1. Investigating aircraft accidents and preparing related technical reports.
 
-9- Issuing licenses to practice aviation education and supervising them, approving their study and training programs, and following up on their development.
+1. Issuing licenses to practice aviation education and supervising them, approving their study and training programs, and following up on their development.
 
-10- Coordination of search and rescue services.
+1. Coordination of search and rescue services.
 
-11- Granting licenses for the construction of airports and landing areas throughout Libya after making sure that they meet all the necessary requirements. 
+1. Granting licenses for the construction of airports and landing areas throughout Libya after making sure that they meet all the necessary requirements. 
 
-12- To propose determining fees and in return for the services it provides to others in its field of competence, and to collect it in accordance with the legislation in force.
+1. To propose determining fees and in return for the services it provides to others in its field of competence, and to collect it in accordance with the legislation in force.
