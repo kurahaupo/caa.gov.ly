@@ -1,38 +1,37 @@
-# Lybian Civil Aviation Authority
+# About the Libyan Aviation Authority
 
-## About Us
+After the Libyan state joined the International Civil Aviation Organization (ICAO) in 1953, the administrative structure for Libyan civil aviation was established in 1955 under the name of the Libyan Aviation Authority, which represents the legitimate and legislative authority of the Libyan state in all forums and before local and international bodies and organizations in the field of civil aviation.
 
-After the accession of the State Quebec International Civil Aviation Organization ICAO in 1944, the administrative structure for Libyan civil aviation founded in 23rd Feb 1953 under the Libyan Aviation Administration, which represents legitimacy and legislative authority of the Libyan state in all forums and in front of bodies of local and international organizations in the field of civil aviation name.
+The Civil Aviation Authority is specialized in implementing and implementing the provisions of the Chicago Convention of 1944, which the Libyan state signed in 1953 to become a member of the International Civil Aviation Organization, ICAO, and the treaty stipulated in its first article that the state has absolute air sovereignty over its airspace in full.
 
-Civil Aviation Authority is concerned with the implementation and application of the policies included in the Chicago Convention of 1944, signed by the Libyan state in 1953, becoming a member of the International Civil Aviation Organization ICAO, the treaty provides the first article on the air that the absolute sovereignty of the state over the region in full.
+The Libyan state was with its large geographical size, which exceeds (approximately 1,750,000 square kilometers) and a long coastline overlooking the Mediterranean Sea (2000 km) within the Malta Aviation Territory, which extends from 36.30 degrees north latitude to 22.00 degrees north latitude and with the eastern borders of the region. The length is 25 degrees east, and with the western borders of the region 11.30 With this enormous airspace, Malta was exercising the right of air sovereignty over this region and the entire Libyan territory, and by the action of national elements and workers in the civil aviation sector, from here came the initiative to achieve sovereignty and control of Libyan airspace on the sixth of December In 1973, the establishment of a region of its own and the establishment of a temporary information center for the management and control of the region. National elements were trained and qualified to take charge of the management of air traffic by qualifying air traffic controllers and all other specializations that would facilitate the work of the civil aviation sector.
 
-Libyan state, the large geographical size, which exceed (1,750,000 square kilometers, almost) and Coast longitudinal overlooking the Mediterranean Sea (2000 kilometers), was part of Malta region Aviation, which extends from the latitude of 36.30 degrees north to latitude 22.00 degrees north and up to Oriental for the region longitude 25 degrees east longitude, and the limits of Western of the territory 11:30, and that this space massive air was Malta exercise its right to air sovereignty over the region and the entire Libyan territory, however, and by the national elements and personnel in the civil aviation sector, has been achieved sovereignty and control of the entire Libyan airspace in the sixth of December 1973, and the establishment of its own territory and the establishment of the center of temporary information for administration of the territory and control, has trained national elements and qualified to take over the reins in the management of air traffic qualifies air traffic controllers and all the other disciplines that will conduct the work of civil aviation sector.
+The Civil Aviation Authority is managed by a steering committee in accordance with the provisions of the text of the decision to establish it for the year (2010)
 
-Civil Aviation Administration of exercise wider powers in the management of civil aviation facility and implementation of public policy in the field of civil aviation, in the framework of international laws and decisions in the field of activity and have in particular:
+The steering committee exercises the broadest powers in managing the authority and managing its affairs. The aviation authority manages the civil aviation facility and implements the general policy in the field of civil aviation, within the framework of international laws and decisions in the field of its activity. It has in particular:
 
-* The study design and contracting of various means of communication, including sending and receiving stations, radar and navigational aids, and all systems related to securing the safety of air navigation in the atmosphere of the Libyan state and other atmosphere that fall within the territory of the Libyan flight information, and secure aviation safety and regulation of air traffic in accordance with the local regulations and standards The international version of the Libyan airline pilots and advertisements, brochures and technical navigational charts and coordinate cooperation with neighboring countries, regions flight information centers to ensure aviation safety and the holding of conventions relating to this guide
+Study, design and contract on various means of communication, including transmitting and receiving stations, radar devices, navigational aids and all systems related to securing the safety of air navigation in the airspace of the Libyan state and other airspace within the Libyan Aviation Information Territory, and securing aviation safety and air traffic regulation according to local regulations and standards And the issuance of the Libyan aviation guide, pilots' announcements, technical bulletins and navigational maps, and coordination of cooperation with the aviation information regions centers of neighboring countries to ensure aviation safety and conclude related agreements.
 
-* Organization of the air transport business and take the necessary measures to hold bilateral and international agreements in coordination with the concerned authorities and the issuance of charter flights and trans permits for the exchange of commercial air transport rights of action, and the issuance of licenses for civil aircraft operating within the Libyan state.
+1- Organizing air transport activities and taking the necessary measures to conclude bilateral and international agreements to exchange commercial air transport rights in coordination with the concerned authorities, issue permits for charter and transit flights, and issue licenses for civil aircraft operating in the Libyan state.
 
-* Inspection of the work of national and foreign airlines in Libya and its agents, adopt and monitor the prices of domestic air transport and international fees charged by and adjust the irregularities committed by the imposition of penalties and fines within the limits of the legislation in force, and the preparation of Economic Research and the issuance of statistical reports on air traffic and to provide the necessary facilities to airlines operating in Libya.
+2- Inspecting the work of national and foreign airlines in Libya and their agents, approving and monitoring the domestic and international air transport prices and fees that they charge, controlling the violations they commit, imposing penalties and fines within the limits of the legislation in force, preparing economic research and issuing statistical reports on air transport and providing the necessary facilities to the operating airlines in Lybia.
 
-* The issuance of landing permits and transit of foreign military aircraft and aircraft as well as foreign official delegations, in coordination with the concerned authorities.
+3- Issuing landing and transit permits for foreign military aircraft, as well as aircraft of foreign official delegations, in coordination with the concerned authorities.
 
-* Presentation of the Libyan state in international and regional organizations and civil aviation bodies as well as in regional and international conferences and committees.
+4- Representing the Libyan state in international and regional civil aviation organizations and bodies, as well as in regional and international conferences and committees.
 
-* Study of international treaties in the field of civil aviation and recommendation on the Libyan position them and follow the necessary procedures for ratification or accession.
+5- Studying international treaties in the field of civil aviation, recommending the Libyan position on them, and following up the necessary procedures for ratification or accession to them.
 
-* Test pilots, engineers, air traffic controllers and maintenance engineers, technicians and airline crews and evacuees and air traffic controllers and the issuance of vacation.
+6- Testing pilots, air engineers, maintenance engineers, technicians, air hospitality crews, deportees and air traffic controllers and issuing their licenses.
 
-* Civil aircraft registration and issuance of certificates of suitability and the adoption of operation and maintenance manuals, as well as the adoption of national and foreign institutions that aircraft maintenance and periodic inspection on them.
+7- Registration of civil aircraft, issuance of validity certificates, approval of operation and maintenance manuals, as well as accreditation of national and foreign institutions that carry out maintenance, aging and periodic inspection of aircraft.
 
-* Aircraft accident investigation and preparation of technical reports relating thereto.
+8- Investigating aircraft accidents and preparing related technical reports.
 
-* Issuance of licenses to conduct flight instruction and supervision and the adoption of programs of study and training and follow-up development.
+9- Issuing licenses to practice aviation education and supervising them, approving their study and training programs, and following up on their development.
 
-* Search and rescue services format.
+10- Coordination of search and rescue services.
 
-* Granting of licenses for the establishment of airports and land landing across Libya after making sure they meet all the necessary requirements.
+11- Granting licenses for the construction of airports and landing areas throughout Libya after making sure that they meet all the necessary requirements. 
 
-* Determine the fees and for services provided by third parties in the area of competence and took levied in accordance with the legislation in force.
-
+12- To propose determining fees and in return for the services it provides to others in its field of competence, and to collect it in accordance with the legislation in force.
