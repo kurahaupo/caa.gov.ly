@@ -8,7 +8,7 @@ The Civil Aviation Authority is concerned with the implementation and applicatio
 
 The treaty provides in the first article on the air-space that the sovereignty of the state over the region is absolute.
 
-The Libyan State (whose area exceeds 1,750,000 km² and the whose Mediterranean coastline spans 2000 km), was part of the Malta Aviation Region, which extends from 36.30°N to 22.00°N, and from 11.30°E to around 25°E. Within this extensive air-space Malta was exercising air sovereignty over the entire Libyan territory.
+The Libyan State (whose area exceeds 1,750,000 km² and the whose Mediterranean coastline spans 2000 km), was part of the Malta Aviation Region, which extends from 36.30°N to 22.00°N, and from 11.30°E to around 25°E. As part of this extensive region, the entire Libyan territory was subject to Maltese air traffic control.
 
 However, through the efforts of national elements and personnel in the civil aviation sector, sovereignty and control of the entire Libyan airspace was established on the sixth of December 1973, with the establishment of a temporary control and information center for the territory, which trained national elements and qualified air traffic controllers to take over the reins in the management of air traffic and all the other disciplines will conduct the work of civil aviation sector.
 
